@@ -12,4 +12,4 @@ Meu nome é David
 
 - @David.nathan.alves
 
-![](https://tenor.com/pt-BR/view/blue-lock-isagi-yoichi-luck-gif-11681065060049676709)
+![](https://media1.tenor.com/m/oht6yH586aUAAAAC/blue-lock-isagi-yoichi.gif)
