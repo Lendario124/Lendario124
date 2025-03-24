@@ -11,5 +11,5 @@ Meu nome é David
 - David.nathan.alves@escola.pr.gov.br
 
 - @David.nathan.alves
--
-  ![](![goku-tui-manga]https://github.com/user-attachments/assets/28950fe1-8a03-4d35-bac5-35277937ec0c)
+
+![image](https://github.com/user-attachments/assets/d93763f1-a0ad-461e-8d3d-d7b60698e848)
