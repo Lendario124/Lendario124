@@ -12,4 +12,5 @@ Meu nome é David
 
 - @David.nathan.alves
 
+![](https://media.tenor.com/mYbYoSUURqUAAAAi/troll-face-phonk.gif)
 ![](https://media1.tenor.com/m/PMzagyg20CAAAAAd/isagi-blue-lock.gif)
